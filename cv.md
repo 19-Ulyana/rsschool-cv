@@ -23,3 +23,7 @@
 * Literacy 
 * Sociability 
 * Perseverance
+
+# My social networks
+* [VK](https://vk.com/shtaniuuuk)
+* [Instagram](https://vk.com/away.php?to=https%3A%2F%2Finstagram.com%2Fshtaniuuuk%3Figshid%3DYmMyMTA2M2Y%3D&cc_key=)
