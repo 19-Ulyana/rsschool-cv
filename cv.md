@@ -12,3 +12,14 @@
 # My sports achievments  
 * Winner of republicans and international championships 
 * Member of international master-classes and seminars 
+
+### My english level B1-B2 
+
+#### (i have been learining english from my first class of school. Attended english courses _"International house"_ for 6 years. Every year have practises of english with native speakers during my coach work)
+
+# My strengths as a person
+* Responsibility
+* Punctuality
+* Literacy 
+* Sociability 
+* Perseverance
