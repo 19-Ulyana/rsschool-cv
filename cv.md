@@ -1,6 +1,6 @@
 # Shtaniuk Ulyana
 
-![photo] ![photo for CV](https://user-images.githubusercontent.com/117119001/206406687-5dbc7e8d-d824-494c-8016-6096df55067d.jpeg "My photo")
+![photo for CV](https://user-images.githubusercontent.com/117119001/206406687-5dbc7e8d-d824-494c-8016-6096df55067d.jpeg "My photo")
 
 ## 21 year old. Living in Minsk, Belarus 
 
